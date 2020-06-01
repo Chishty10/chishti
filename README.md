@@ -1,0 +1,2 @@
+# chishti
+never quit
